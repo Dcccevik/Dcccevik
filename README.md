@@ -1,10 +1,18 @@
-- 👋 Hi, I’m @Dcccevik
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+✅ ÇEVİK  SIVI SOLUCAN GÜBRESİ
+📌20 LT 🏷️999 TL
+🚚ÜCRETSİZ KARGO
+🔖 İSTER KAPIDA İSTER HAVALE/EFT İLE ÖDEME
+📞WhatsApp iletişim 0850/309/92/39
+👍ARAYIN YARDIMCI OLALIM
 
-<!---
-Dcccevik/Dcccevik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+🚩 Yüksek miktarda organik madde 
+🚩Doğal büyüme hormonları
+🚩Yoğun miktarda hümik asit ,fulvik asit, serbest aminoasitler
+🚩Bitki sağlığı ve gelişimi için etkili olan faydalı bakterilere sahip,mikrobiyal yapıdadır.
+✅ VERİMDE ARTIŞ 
+✅ HASATTA ERKENCİLİK
+✅ KALİTE ÜRÜN FARKI
+✅ UZUN RAF ÖMRÜ
+⚡ KALİTELİ GÜBRE ⚡
+🔖VERİMLİ HASAT🔖
+🍃MUTLU ÇİFTÇİ
